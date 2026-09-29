@@ -1,16 +1,15 @@
-## Hi there 👋
+<div align="center">
+  
+<br>[☆ help our people](https://helpourpeople.carrd.co/)
 
-<!--
-**DomSutyagina/DomSutyagina** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+offtab 3/4 of the time whisper to interact<br>
+might be awkward first few conversations<br>
+i would love to make new friends with similar interests<br>
 
-Here are some ideas to get you started:
+<details>
+  <summary>more about me</summary>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+☆ main interests are ch, centaura, g&b, maybe l&c and anything history in general<br>
+☆ i also like making original characters i'd love to connect with other creators<br>
+☆ literally talk to me about any of the above
+</details><br>
